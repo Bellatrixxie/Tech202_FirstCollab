@@ -5,3 +5,5 @@
 
 #Topics for week 6
 
+Added by Mary
+
