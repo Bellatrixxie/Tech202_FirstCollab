@@ -6,3 +6,8 @@ Added by Mary
 
 ###Group Collab
 
+#Topics for week 6 
+
+Happy Tuesday!
+
+
