@@ -5,3 +5,4 @@
 
 #Topics for week 6
 
+Nicole has added a line
